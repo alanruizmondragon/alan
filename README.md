@@ -1,1 +1,1 @@
-# Alan Ruiz Mondragón
+# Alan
